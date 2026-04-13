@@ -1,0 +1,1 @@
+# Estaditica_G1_2026_1
